@@ -1,2 +1,0 @@
-# UMN_activities
- 
